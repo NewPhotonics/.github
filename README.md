@@ -1,3 +1,0 @@
-# NewPhotonics
-
-Breaking the Limits
